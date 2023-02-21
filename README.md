@@ -1,2 +1,2 @@
-# rcarbon-del.github.io
-# kamustaaa
+# PANGIT NI CARLOOO
+# sobraaa AHAHAHAHAHHAHAH
